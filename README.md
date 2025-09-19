@@ -1,1 +1,0 @@
-# finance_research_analyst_CrewAI
